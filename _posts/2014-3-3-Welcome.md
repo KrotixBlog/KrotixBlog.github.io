@@ -10,6 +10,6 @@ There might be a new post explaining how Krotix was founded so stay tuned for th
 So, what are you waiting for? Visit and Register at Krotix now with the following URL!
 [Click Here!](https://Krotix.net)
 
----
+--
 Regards,
-Mebin Robin.
+Krotix Cloud.
